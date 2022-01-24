@@ -1,2 +1,0 @@
-# INDIAN
-mera bharath mahan
